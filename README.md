@@ -1,0 +1,2 @@
+# ponciiik
+poncikleri yerim
